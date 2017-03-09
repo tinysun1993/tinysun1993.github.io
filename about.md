@@ -14,7 +14,7 @@ Graduated student majored in Applied Economics
 **Contact**
 
 * [Github](https://github.com/tinysun1993)
-* [~~Zhihu~~](http://www.zhihu.com/people/tinysun)
+* [Zhihu](http://www.zhihu.com/people/sun-xiao-xiao-20-57)
 
 ## Somethings I love
 
